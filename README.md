@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @VillansRule
-- I make computer stuff happen with AI
-- professional Vibe Hacker
-- Kaboom!
+- I make computer stuff happen somehow
+- im bad at everything,everywhere,all at once
+- A few words: Nitwit.Blubber.Oddmit.Tweak
